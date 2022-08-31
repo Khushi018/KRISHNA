@@ -1,7 +1,5 @@
 # KRISHNA-!
 
-Author - @abhijeetsharma ✨
-
 [4524217](https://user-images.githubusercontent.com/99397886/187635698-74557733-47b6-4353-8280-ad69926f3c37.jpg)
 
 'Srimad Bhagavad Gita' is just not a holy book, it has also gained a prominent place in literature of the world. It contains divine words emanating from the lips of Lord Krishna. The great epic is an eloquent proof of the observation. As a scripture, this book embodies the supreme spiritual mystery and secrets. Its style is so simple and elegant that with a little study one can easily follow the structure of its words, yet the thoughts behind those words are so deep and abstruse that even for life time, constant study of this Book may not show an end of it.
