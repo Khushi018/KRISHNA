@@ -17,7 +17,7 @@
 (v) The human being is obliged to perform his duties without hoping for the fruits which he may get out of his performace.
 
                                                            
-                                                          💖 🖤 * JAI SHREE KRISHNA * 🖤 💖
+                                                    💖 🖤 * JAI SHREE KRISHNA * 🖤 💖
 
   
 Author - @abhijeetsharma ✨
